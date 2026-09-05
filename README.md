@@ -1,5 +1,5 @@
 # Hi 👋 I am Sambuddha Pal 
-*   🌱 **Currently studying:** B.Tech Computer Science & Engineering (Cyber Security).
+*   💻️ **Currently studying:** B.Tech Computer Science & Engineering (Cyber Security).
 *   🎨 **Hobbies:** Coding, Drawing, Watching Anime, Movies, Gaming.
 
 ## 🔗 Connect with me
