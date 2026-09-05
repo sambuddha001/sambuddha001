@@ -5,4 +5,4 @@
 ## 🔗 Connect with me
 *   **Discord:** [ThunderHawk](https://discord.dog/zenithxy001)   
 *   **LinkedIn:** [sambuddha-pal](https://www.linkedin.com/in/sambuddha-pal/)
-*   **Email:** [Email](sambuddhabubka@gmail.com)
+*   **Email:** [sambuddhabubka@gmail.com]
